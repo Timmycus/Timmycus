@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Timmycus and I am a newbie
+- 👀 I’m interested in ...security, I think but anything will do I guess.
+- 🌱 I’m currently learning ...anything, just giving this a go.
+- 💞️ I’m looking to collaborate on ...dunno yet.
+- 📫 How to reach me...resevilmaster.ts@gmail.com
